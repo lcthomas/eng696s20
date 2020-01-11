@@ -77,34 +77,35 @@ We will not meet as a group this week. Instead, sometime over the course of the 
 ## Week 8: Workshop 1
 ## Tuesday, March 3
 Due by 12 am Wednesday, March 4:
-* Full draft of workshop 2 writing
+* Full drafts of workshop 2 and workshop 3 writing
 
 This week's workshop:
 
 ----
 
-## Week 9: Workshop 2
-## Tuesday, March 10
-Due by 12 am Wednesday, March 11:
-* Full drafts of workshop 3 and workshop 4 writings
-
-This week's workshop:
+## Week 9:
+## Tuesday, March 10: SPRING BREAK NO CLASS
 
 ----
 
-## Week 10
-## Tuesday, March 17: SPRING BREAK NO CLASS
+## Week 10: Workshop 2 and Workshop 3
+## Tuesday, March 17: CLASS BEGINS AT 12:30 PM
 
-----
-
-## Week 9: Workshop 3 and workshop 4
-## Tuesday, March 24: CLASS BEGINS AT 12:30 PM
-Due by 12 am Wednesday, March 25:
-* Full draft of workshop 5 writing
+Due by 12 am Wednesday, March 18:
+* Full draft of workshop 4 writing
 
 This week's workshops (2 people will sign up for this week):
 
 This class will be slightly different from our other workshop weeks in that we will workshop the work of 2 people. Because of this, our class will begin earlier than usual, at 12:30, so that we will have time to workshop both pieces.
+
+----
+
+## Week 9: Workshop 4
+## Tuesday, March 24
+Due by 12 am Wednesday, March 25:
+* Full draft of workshop 5 writing
+
+This week's workshop:
 
 ----
 
