@@ -30,7 +30,7 @@ Due by class:
     * Based on the information you gather in the step above, write 1-3 paragraphs on who you see as the major audience group(s) for this journal, and why you see your piece as a good fit for this journal.
     * Include information on submission guidelines, including length, citation style, submission format, the submission process, and any other information pertinent to manuscript submission that the journal offers on its website.
 
-In this class, we will discuss the importance of audience in scholarly publishing. Come to class ready to discuss the above assignment. We will also discuss what an "ideal outline" is. You should begin writing your ideal outline after this week (due week 5).
+In this class, we will discuss the importance of audience in scholarly publishing. Come to class ready to discuss the above assignment.
 
 **NOTE:** This assignment and next week's assignment are, obviously, organized around academic publications. However, some of you have indicated that you might be interested in exploring publication opportunities outside of peer-reviewed journals. If you are still considering this, please talk to me in advance of doing this week's assignment.
 
@@ -40,28 +40,30 @@ In this class, we will discuss the importance of audience in scholarly publishin
 ## Tuesday, February 4
 Due by class:
 * Select one of the articles from your top-choice journal identified in last week's assignment and read it through carefully, paying particular attention to its citations and foot- or endnotes.
-* After reading, write ~3-5 paragraphs identifying what you see as the most important conversations with which this article is signaling engagement via its citations and notes. Submit this writing to our Box folder. Your paragraphs should include answers to the following 3 questions:
+* Then, write ~3-5 paragraphs identifying what you see as the most important conversations with which this article is signaling engagement via its citations and notes. Submit this writing to our Box folder. Your paragraphs should include answers to the following 3 questions:
     * What are the recent/current conversations with which this author is engaging?
     * What are the classic/foundational (for this field or fields, or for a discipline overall) conversations or pieces with which this author is engaging?
     * How does the author signal engagement with these conversations? Discuss 3 specific and **different** ways in which the author engages with preexisting work (by challenging that work, by building on it, by referring readers interested in more information on x topic to it, etc.)
 
-For this class, we will discuss the role and importance of citations and notes. Come to class ready to discuss the above assignment. You should continue working on your ideal outline (due next week).
+For this class, we will discuss the role and importance of citations and notes. Come to class ready to discuss the above assignment. We will also discuss what an "ideal outline" is. You should begin writing your ideal outline after this week (due week 6).
 
 ----
 
-## Week 5: Ideal outline
+## Week 5: Abstracts
 ## Tuesday, February 11
 Due by class:
-* An ideal outline for the piece you will be working with this semester, including a first draft of an article abstract. The more detailed you can make this outline, the better. Please submit a copy to our course Box folder, and bring 2 print copies to class. You will workshop this outline in class with a partner/in a small group.
+* Select another article from your top-choice journal identified in week 3's assignment and read it through carefully. After reading, copy and paste the article’s abstract to a separate document. Then, within that same document, write ~1-2 paragraphs about what you see as the major goal(s) of an article abstract and how this article’s abstract fulfills those goals (be very specific, i.e., point to specific sentences/phrases in the abstract). Submit this writing to our Box folder.
 
-We will workshop and discuss your ideal outlines in class. You will also create a plan for revision.
+During this class, we will read the example article abstracts you provide and discuss the role and importance of article abstracts more generally. Come to class ready to discuss the above assignment. You should continue working on your ideal outline (due next week).
 
 ----
 
-## Week 6: Write!
-## Tuesday, February 18: NO CLASS
+## Week 6: Ideal outline
+## Tuesday, February 18
 
-We will not meet as a group this week. Instead, sometime over the course of the next 2 weeks, you will set up an individual meeting with me. We will discuss my feedback on your ideal outline, your revision plan, any challenges or problems you foresee or are facing in writing your piece, and any questions you might have.
+* An ideal outline for the piece you will be working with this semester, including a first draft of an article abstract. This outline should be very detailed and specific. Please submit a copy to our course Box folder, and bring 2 print copies to class. You will workshop this outline in class with a partner/in a small group.
+
+We will workshop and discuss your ideal outlines and abstracts in class. You will also create a plan for revision.
 
 ----
 
@@ -70,7 +72,7 @@ We will not meet as a group this week. Instead, sometime over the course of the 
 Due by 12 am Wednesday, Feb 26:
 * Full draft of workshop 1 writing
 
-We will not meet as a group this week. Instead, sometime over the course of the previous week and this week, you will set up an individual meeting with me. We will discuss my feedback on your ideal outline, your revision plan, any challenges or problems you foresee or are facing in writing your piece, and any questions you might have.
+We will not meet as a group this week. Instead, you will set up an individual meeting with me. We will discuss my feedback on your ideal outline, your revision plan, any challenges or problems you foresee or are facing in writing your piece, and any questions you might have.
 
 ----
 
