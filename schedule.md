@@ -20,7 +20,7 @@ In this class, we will discuss the conventions of a journal article using an exa
 
 ----
 
-## Week 3: Journal selection
+## Week 3: Audience
 ## Tuesday, January 28
 Due by class:
 * A ranked list of the 3 journals to which you think you want to submit your piece, submitted to our course Box folder. For the **first journal** (and only the first journal!) on this list, you will do the following:
