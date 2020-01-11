@@ -33,7 +33,7 @@ This is a pass/fail course. There are no grades. Completing the above requiremen
 If you have received accommodations from UM’s Office of Disability Services, please let me know. Whether or not you have documentation, I hope to make our learning experience as accessible as possible to all. Please let me know early in the semester if you have any concerns regarding your learning potential, participation, or general access in this course.
 
 ## Writing and Workshopping
-This course is organized according to a collaborative and open ethos. Much of this course is centered on sharing and workshopping the writing of participants in the course. You will share most of your course assignments with the entire group. By taking this course, you are committing to this ethos.
+This course is organized according to a collaborative and open ethos. Much of the course is centered on sharing and workshopping the writing of fellow participants. You will share most of your assignments with the entire group. By taking this course, you are committing to this ethos.
 
 This means, first, that you are committing  to reading and commenting on the work of your colleagues in a timely, respectful, and professional manner. Each workshop day, you will come to class having read the piece of writing under discussion and formulated notes for the author. You will use these notes to give oral feedback to the author during our discussion of their writing that day. If you will be gone from class during a day in which we are workshopping someone's writing, you will be responsible for sending the author written feedback on their writing.
 
