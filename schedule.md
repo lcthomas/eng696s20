@@ -113,7 +113,7 @@ This week's workshop:
 
 ## Week 10: Workshop 5
 ## Tuesday, March 31
-Due by 12 am Wednesday, March 26:
+Due by 12 am Wednesday, April 1:
 * Full draft of workshop 6 writing
 
 This week's workshop:
