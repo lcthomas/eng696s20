@@ -52,7 +52,7 @@ For this class, we will discuss the role and importance of citations and notes. 
 ## Week 5: Ideal outline
 ## Tuesday, February 11
 Due by class:
-* An ideal outline for the piece you will be working with this semester. The more detailed you can make this outline, the better. Please submit a copy to our course Box folder, and bring 2 print copies to class. You will workshop this outline in class with a partner/in a small group.
+* An ideal outline for the piece you will be working with this semester, including a first draft of an article abstract. The more detailed you can make this outline, the better. Please submit a copy to our course Box folder, and bring 2 print copies to class. You will workshop this outline in class with a partner/in a small group.
 
 We will workshop and discuss your ideal outlines in class. You will also create a plan for revision.
 
