@@ -60,7 +60,7 @@ During this class, we will read the example article abstracts you provide and di
 
 ## Week 6: Ideal outline
 ## Tuesday, February 18
-
+Due by class:
 * An ideal outline for the piece you will be working with this semester, including a first draft of an article abstract. This outline should be very detailed and specific. Please submit a copy to our course Box folder, and bring 2 print copies to class. You will workshop this outline in class with a partner/in a small group.
 
 We will workshop and discuss your ideal outlines and abstracts in class. You will also create a plan for revision.
