@@ -1,0 +1,20 @@
+title: Academic Writing and Publishing
+description: ENG 696 | Spring 2020 | University of Miami
+url: "http://lindsaythomas.net/eng696s20" # the base hostname & protocol for your site, e.g. http://example.com
+
+# Build settings
+remote_theme: alexander-heimbuch/millidocs
+#remote_theme: pmarsceill/just-the-docs
+markdown: kramdown
+kramdown:
+  syntax_highlighter_opts:
+    disable : true
+
+exclude:
+  - Gemfile
+  - Gemfile.lock
+  - README.md
+
+sass:
+  sass_dir: _sass
+  style: compressed
