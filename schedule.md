@@ -18,6 +18,10 @@ Due by class:
 
 In this class, we will discuss the conventions of a journal article using an example, and discuss how a journal article is different from a dissertation chapter. You will complete a reverse outline of this article before coming to class.
 
+**RECOMMENDED:**
+* Belcher, *Writing Your Journal Article in 12 Weeks*, Week 1 for tips about how to decide what piece to work on, making a writing plan you will stick to and setting realistic goals, identifying obstacles to writing.
+* Belcher, *Writing Your Journal Article in 12 Weeks*, Week 2 for a discussion of different genres of academic writing, myths about publishing journal articles, a discussion of what does get published and why, ingredients of a good abstract, and tips about how to get started.
+
 ----
 
 ## Week 3: Audience
