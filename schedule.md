@@ -16,7 +16,7 @@ Due by class:
 * Read Mimi Thi Nguyen, "The Hoodie as Sign, Screen, Expectation, and Force," *Signs*, 40.4 (Spring 2015): 791-816 (reading in Box folder)
 * Complete reverse outline of Nguyen's article and submit to course Box folder
 
-In this class, we will discuss the conventions of a journal article using an example, and discuss how a journal article is different from a dissertation chapter. You will complete a reverse outline of this article before coming to class.
+In this class, we will discuss the conventions of a journal article using an example, and discuss how a journal article is different from a dissertation chapter. You will complete a reverse outline of this article before coming to class. In class, we will compare the introduction of Angela Naimou's article "'I Need Many Repetitions': Rehearsing the Haitian Revolution in the Shadows of the Sugar Mill," and the introduction of chapter 2 from her book *Salvage Work,* which expands on this article (both readings are in our course Box folder).
 
 **RECOMMENDED:**
 * Belcher, *Writing Your Journal Article in 12 Weeks*, Week 1 for tips about how to decide what piece to work on, making a writing plan you will stick to and setting realistic goals, identifying obstacles to writing.
