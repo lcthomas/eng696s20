@@ -54,6 +54,9 @@ Due by class:
 
 For this class, we will discuss the role and importance of citations and notes. Come to class ready to discuss the above assignment. We will also discuss what an "ideal outline" is. You should begin writing your ideal outline after this week (due week 6).
 
+**RECOMMENDED:**
+* Belcher, *Writing Your Journal Article in 12 Weeks*, Week 5 on reviewing the related literature
+
 ----
 
 ## Week 5: Abstracts
