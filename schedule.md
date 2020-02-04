@@ -66,6 +66,10 @@ Due by class:
 
 During this class, we will read the example article abstracts you provide and discuss the role and importance of article abstracts more generally. Come to class ready to discuss the above assignment. You should continue working on your ideal outline (due next week).
 
+**RECOMMENDED:**
+* Belcher, *Writing Your Journal Article in 12 Weeks*, Week 2 for a discussion of the ingredients of a good abstract
+
+
 ----
 
 ## Week 6: Ideal outline
