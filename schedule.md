@@ -105,8 +105,12 @@ This week's workshop: Tarika
 ----
 
 ## Week 10: Workshop 2 and Workshop 3
-## Tuesday, March 17: CLASS BEGINS AT 12:30 PM
+## Tuesday, March 17: CLASS CANCELED
 
+----
+
+## Week 9: Workshop 4
+## Tuesday, March 24: CLASS VIA ZOOM
 Due by 12 am Wednesday, March 18:
 * Full draft of workshop 4 writing (Gil)
 
@@ -114,10 +118,11 @@ This week's workshops (2 people will sign up for this week): Alex and Suchi
 
 This class will be slightly different from our other workshop weeks in that we will workshop the work of 2 people. Because of this, our class will begin earlier than usual, at 12:30, so that we will have time to workshop both pieces.
 
+
 ----
 
-## Week 9: Workshop 4
-## Tuesday, March 24
+## Week 10: Workshop 5
+## Tuesday, March 31: CLASS VIA ZOOM
 Due by 12 am Wednesday, March 25:
 * Full draft of workshop 5 writing (Ashley)
 
@@ -125,19 +130,13 @@ This week's workshop: Gil
 
 ----
 
-## Week 10: Workshop 5
-## Tuesday, March 31
+## Week 11: Workshop 6
+## Tuesday, April 7
+
 Due by 12 am Wednesday, April 1:
 * Full draft of workshop 6 writing (Tiffany)
 
 This week's workshop: Ashley
-
-----
-
-## Week 11: Workshop 6
-## Tuesday, April 7
-
-This week's workshop: Tiffany
 
 ----
 
