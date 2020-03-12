@@ -104,12 +104,12 @@ This week's workshop: Tarika
 
 ----
 
-## Week 10: Workshop 2 and Workshop 3
+## Week 10:
 ## Tuesday, March 17: CLASS CANCELED
 
 ----
 
-## Week 9: Workshop 4
+## Week 9: Workshop 2 and Workshop 3
 ## Tuesday, March 24: CLASS VIA ZOOM
 Due by 12 am Wednesday, March 18:
 * Full draft of workshop 4 writing (Gil)
@@ -121,7 +121,7 @@ This class will be slightly different from our other workshop weeks in that we w
 
 ----
 
-## Week 10: Workshop 5
+## Week 10: Workshop 4
 ## Tuesday, March 31: CLASS VIA ZOOM
 Due by 12 am Wednesday, March 25:
 * Full draft of workshop 5 writing (Ashley)
@@ -130,7 +130,7 @@ This week's workshop: Gil
 
 ----
 
-## Week 11: Workshop 6
+## Week 11: Workshop 5
 ## Tuesday, April 7
 
 Due by 12 am Wednesday, April 1:
