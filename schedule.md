@@ -110,7 +110,7 @@ This week's workshop: Tarika
 ----
 
 ## Week 9: Workshop 2 and Workshop 3
-## Tuesday, March 24: CLASS VIA ZOOM
+## Tuesday, March 24: CLASS VIA ZOOM -- CLASS BEGINS AT 12:30 PM EST
 Due by 12 am Wednesday, March 18:
 * Full draft of workshop 4 writing (Gil)
 
