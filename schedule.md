@@ -111,7 +111,7 @@ This week's workshop: Tarika
 
 ## Week 9: Workshop 2 and Workshop 3
 ## Tuesday, March 24: CLASS VIA ZOOM -- CLASS BEGINS AT 12:30 PM EST
-Due by 12 am Wednesday, March 18:
+Due by 12 am Wednesday, March 25:
 * Full draft of workshop 4 writing (Gil)
 
 This week's workshops (2 people will sign up for this week): Alex and Suchi
@@ -123,7 +123,7 @@ This class will be slightly different from our other workshop weeks in that we w
 
 ## Week 10: Workshop 4
 ## Tuesday, March 31: CLASS VIA ZOOM
-Due by 12 am Wednesday, March 25:
+Due by 12 am Wednesday, April 1:
 * Full draft of workshop 5 writing (Ashley)
 
 This week's workshop: Gil
@@ -132,9 +132,6 @@ This week's workshop: Gil
 
 ## Week 11: Workshop 5
 ## Tuesday, April 7
-
-Due by 12 am Wednesday, April 1:
-* Full draft of workshop 6 writing (Tiffany)
 
 This week's workshop: Ashley
 
