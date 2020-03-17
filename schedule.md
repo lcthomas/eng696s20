@@ -131,7 +131,7 @@ This week's workshop: Gil
 ----
 
 ## Week 11: Workshop 5
-## Tuesday, April 7
+## Tuesday, April 7: CLASS VIA ZOOM
 
 This week's workshop: Ashley
 
