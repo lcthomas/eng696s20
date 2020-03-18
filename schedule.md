@@ -109,50 +109,49 @@ This week's workshop: Tarika
 
 ----
 
-## Week 9: Workshop 2 and Workshop 3
-## Tuesday, March 24: CLASS VIA ZOOM -- CLASS BEGINS AT 12:30 PM EST
+## Week 9: Workshop 2
+## Tuesday, March 24: CLASS VIA ZOOM
 Due by 12 am Wednesday, March 25:
-* Full draft of workshop 4 writing (Gil)
+* Full draft of workshop 3 writing (Suchi)
 
-This week's workshops (2 people will sign up for this week): Alex and Suchi
-
-This class will be slightly different from our other workshop weeks in that we will workshop the work of 2 people. Because of this, our class will begin earlier than usual, at 12:30, so that we will have time to workshop both pieces.
-
+This week's workshop: Alex
 
 ----
 
-## Week 10: Workshop 4
+## Week 10: Workshop 3
 ## Tuesday, March 31: CLASS VIA ZOOM
 Due by 12 am Wednesday, April 1:
+* Full draft of workshop 4 writing (Gil)
+
+This week's workshop: Suchi
+
+----
+
+## Week 11: Workshop 4
+## Tuesday, April 7: CLASS VIA ZOOM
+Due by 12 am Wednesday, April 8:
 * Full draft of workshop 5 writing (Ashley)
 
 This week's workshop: Gil
 
 ----
 
-## Week 11: Workshop 5
-## Tuesday, April 7: CLASS VIA ZOOM
+## Week 12: Workshop 5
+## Tuesday, April 14: CLASS VIA ZOOM
 
 This week's workshop: Ashley
 
 ----
 
-## Week 12: Submission, peer review, and revision
-## Tuesday, April 14
+## Week 13: Submission, peer review, revision, and rejection
+## Tuesday, April 21: CLASS VIA ZOOM
 Due by class:
 * Read an example cover letter for an article submission (reading in Box folder).
 * Read example reader's reports and an example response letter to an editor (reading in Box folder).
 
-In this class, we will discuss the nuts and bolts of submitting an article to a scholarly journal, the peer review process, and the revision process.
+In this class, we will discuss the nuts and bolts of submitting an article to a scholarly journal, the peer review process, the revision process, and what to do if you receive a rejection.
 
 ----
 
-## Week 13: Publication experiences
-## Tuesday, April 21
-
-In this class, we will hear from a panel of English Department faculty on their experiences with academic publishing as both authors and reviewers.
-
-----
-
-## Final draft due to me during finals week, April 29-May 6
-You will submit a final draft of your piece to me by the end of the semester. You will arrange a due date with me during finals week that works best for your schedule.
+## OPTIONAL: Final draft due to me during the last week of the semester, April 29-May 6
+If you want more feedback on your draft/another deadline for making revisions, you will submit a final draft of your piece to me by the end of the semester. You will arrange a due date with me that works best for your schedule.
